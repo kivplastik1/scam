@@ -1,2 +1,0 @@
-# scam
-fg gh jk
